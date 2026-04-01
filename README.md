@@ -1,1 +1,1 @@
-Siin on andmetarkuse materjalid
+Siin on andmetarkuse materjalid.
